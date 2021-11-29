@@ -17,7 +17,7 @@
 
 
 
-
+~
 Dear predecessors of the coin circle, this is a letter begging for help. I hope you will spend a few minutes reading it.
 
 I am a technician and have a technology company, mainly engaged in website, mobile app, Internet of things and block chain software development. Before the epidemic in 2019, the team size had reached 60 people. Later, because the epidemic affected no business, I was reluctant to lose the company and team. Up to now, I have been heavily in debt and can't keep the team without money. Finally, people and money are empty.
